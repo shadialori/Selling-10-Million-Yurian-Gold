@@ -8,4 +8,4 @@ I'm up for trading low amounts if you are not trusting me
 
 Thanks for reading!
 
-edit: 8 Million left
+edit: 7 Million left
