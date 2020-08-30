@@ -7,3 +7,5 @@ Payment options are only Paypal since its the most comon
 I'm up for trading low amounts if you are not trusting me
 
 Thanks for reading!
+
+edit: 8 Million left
