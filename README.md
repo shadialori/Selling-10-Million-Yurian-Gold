@@ -1,5 +1,5 @@
 # Selling-10-Million-Yurian-Gold
-Hi, I'm selling 10 Million Gold on Yurian since i have to much and dont need it anymore. 
+Hi, I'm selling 10 Million Gold on Yurian since i have too much and dont need it anymore. 
 If you want some more information feel free to add me on Discord: shadialori#0300
 
 Price = 10€ per Million
