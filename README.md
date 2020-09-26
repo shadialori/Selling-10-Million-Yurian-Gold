@@ -18,7 +18,7 @@ edit: 6 Million left
 Hi, Ich Verkaufe 10 Million Gold auf Yurian weil ich zu viel habe und sowieso nicht mehr aktiv Spiele. 
 Wenn du mehr informationen möchtest adde mich auf Discord: shadialori#0300
 
-Price = 10€ pro 1 Million
+Preis = 10€ pro 1 Million
 Zahlungs optionen sind nur Paypal 
 Ich habe auch kein Problem damit kleine beträge zu handeln falls du mir nicht vertraust.
 
