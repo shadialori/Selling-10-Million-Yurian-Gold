@@ -4,7 +4,7 @@ If you want some more information feel free to add me on Discord: shadialori#030
 
 Price = 10€ per Million
 Payment options are only Paypal since its the most comon
-I'm up for trading low amounts if you are not trusting me
+I'm up for trading low amounts if you are not trusting me.
 
 Thanks for reading!
 
